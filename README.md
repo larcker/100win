@@ -1,1 +1,1 @@
-# 100win
+for lolz guru
